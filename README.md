@@ -19,9 +19,8 @@
 
   ## Installation:
       Video Link:
-
-  ## Usage:
-      Pics      
+      https://drive.google.com/file/d/1D9BruZE5FF79b8Wy8RB6pftjDuJkNXFS/view
+   
 
   ## Questions:
 
